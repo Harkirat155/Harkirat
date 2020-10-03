@@ -1,1 +1,1 @@
-[Portfolio](Harkirat155.github.io)
+[Portfolio](harkirat155.github.io)
